@@ -5,6 +5,7 @@
 - 📫 E-mail: camila_moraismelo@hotmail.com
 - 🧞‍♀️ Kaggle: https://www.kaggle.com/camilammelo
 - ⚡ Fun fact: Gosto de estudar Astronomia
+- 💻 Blog: https://camila014.wordpress.com/
 - 😄 Pronome: Ela
 </br>
 <div align="center">
