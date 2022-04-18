@@ -2,7 +2,7 @@
 
 Sou curiosa, amo Tecnologia e Astronomia 
 
-- 🔭 Data Analytics | Data Lover ❤
+- 🔭 Data Analytics | Data Engineer |Data Lover ❤
 - 🧞‍♀️ Kaggle: https://www.kaggle.com/camilammelo
 - 💻 Blog: https://camila014.wordpress.com/
 
